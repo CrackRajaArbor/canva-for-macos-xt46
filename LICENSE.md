@@ -1,4 +1,4 @@
-# 
+# Enhance Canva for macOS with instant Canva for macOS Script | vector tools + layer styles, the #1 script. Includes vector tools and layer styles for a smoother and more creative
 
 
 
